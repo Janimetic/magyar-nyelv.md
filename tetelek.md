@@ -6,3 +6,7 @@ az ősmagyar kor: az első határa a honfoglalás ideje: nem maradt fel belőle 
 Középmagyar kor: irodalmi határ: 1772. Ekkor írja meg Bessenyei György, a kor első ismert alakja, Ágisz tragédiája című munkáját.
 192ü.-tól Legújabb magyar kor, az utolsó száz év. A nyelvben ez az idegen hatások felerősödését hozza magával, a globalizációt, a nyelv szókincse rengeteget gyarapszik.   
   
+  
+Magyarság vándorlása.
+
+  
