@@ -9,4 +9,4 @@ Középmagyar kor: irodalmi határ: 1772. Ekkor írja meg Bessenyei György, a k
   
 Magyarság vándorlása.
 
-  
+Károli Biblia: 159ü Vizsoly, Teljes Biblia, Református megközelítésből. (1517 Luther)
